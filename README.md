@@ -8,7 +8,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/](https://www.linkedin.com/)
 
-- ⚡ fact **You can do anything you set your mind to**
+- ⚡ fact **90 % of data has spatial character and can be analyzed or visualized on maps.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
