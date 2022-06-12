@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **Anything you need**
 
-- 📄 Know about my experiences [https://www.linkedin.com/](https://www.linkedin.com/)
+- 📄 Know about my experiences [https://www.linkedin.com/](https://www.linkedin.com/in/sergii-shchus-242343a1/)
 
 - ⚡ fact **90 % of data has spatial character and can be analyzed or visualized on maps.**
 
